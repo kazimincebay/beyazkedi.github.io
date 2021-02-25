@@ -1,1 +1,1 @@
-# beyazkedi.github.io
+# beyazkedi.me
